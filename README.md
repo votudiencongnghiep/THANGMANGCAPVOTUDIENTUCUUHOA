@@ -1,8 +1,8 @@
 # votudiencongnghiep
 Nhà sản xuất Thang Máng Cáp Điện - Vỏ Tủ Điện - Tủ Cứu Hỏa tại Hà Nội
-Nhà sản xuất các loại sản phẩm cơ khí CNC tại <a href="https://votudiencongnghiep.com/"><strong>https://votudiencongnghiep.com/</strong></a> vơi tiến độ và thời gian báo giá tốt nhất Hà Nội với mặt bằng sản xuất và gia công rộng lớn chắc chắn sẽ làm hài lòng quý khách hàng trên toàn quốc
-Nhà sản xuất <a href="https://votudiencongnghiep.com/thang-mang-cap"><strong>thang máng cáp</strong></a> điện với nhiều kích thước tiêu chuẩn 500x100, 400x100, 300x100, 200x100, 150x100 với độ dày 1.0mm, 1.2mm, 1.5mm, 2.0mm với nhiều loại sơn tĩnh điện, mạ kẽm nhúng nóng, mạ kẽm điện phân, tôn ZAM, tôn tráng kẽm theo kích thước yêu cầu.
+Đơn vị chuyên làm theo bản vẽ thiết kế yêu cầu của nhà máy cơ khí chính xác <a href="https://votudiencongnghiep.com/"><strong>https://votudiencongnghiep.com/</strong></a> diện tích nhà xưởng rộng lớn, nhân công đông đảo, đội ngũ công nhân viên có tay nghề sẽ giúp cho quý khách hàng có nhiều sự lựa chọn hơn cho sản phẩm của mình
+Nhà báo giá <a href="https://votudiencongnghiep.com/thang-mang-cap"><strong>sản xuất thang máng cáp</strong></a> với giá thấp sơn so với đơn vị cùng chế tạo, có nhiều kích thước khác nhau, có nắp hay không nắp tùy thuộc và yêu cầu của quý khách hàng, sơn tĩnh điện nhiều màu khác nhau, có nhiều màu cho quý khách lựa chọn
 
-Báo giá <a href="https://votudiencongnghiep.com/vo-tu-dien"><strong>vỏ tủ điện</strong></a> theo kích thước và bản vẽ thiết kế yêu cầu 1800x1200x500, 1600x800x500, 1600x900x450, 1200x800x300, 1200x700x400, 800x600x200, 800x600x300, 600x400x200, 500x400x180 với nhiều kiểu dáng trong nhà và ngoài trời, 1 lớp cánh hay 2 lớp cánh, phụ kiện lắp đặt bên trong
+Sản xuất gia công <a href="https://votudiencongnghiep.com/vo-tu-dien"><strong>vỏ tủ điện sơn tĩnh điện</strong></a> của nhiều loại vỏ khác nhau trong nhà và ngoài trời, theo bản vẽ kỹ thuật giúp khách hàng có nhiều lựa chọn hơn trong sản phẩm của mình
 
-Cung cấp <a href="https://votudiencongnghiep.com/tu-cuu-hoa"><strong>tủ cứu hỏa</strong></a> theo tiểu chuẩn PCCC, tủ chữa cháy vách tường, hộp cứu hỏa với kích thước tiêu chuẩn 600x500x180, 500x400x180... sơn tĩnh điện màu đỏ theo yêu cầu tiêu chuẩn báo cháy ở Việt Nam
+Gia công <a href="https://votudiencongnghiep.com/tu-cuu-hoa"><strong>tủ phòng cháy chữa cháy</strong></a> theo kich thước của mọi quý công ty, chủ đầu tư với số lượng và sản lượng tốt nhất cho mọi khách hàng.
